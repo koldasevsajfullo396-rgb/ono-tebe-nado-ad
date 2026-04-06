@@ -1,1 +1,1 @@
-https://github.com/koldasevsajfullo396-rgb/ono-tebe-nado-ad
+https://github.com/koldasevsajfullo396-rgb/posmotri-v-okno-ad
